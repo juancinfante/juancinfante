@@ -1,4 +1,4 @@
-<img src="https://thumbs.gfycat.com/RealisticRaggedDrever-size_restricted.gif">
+<img src="https://media.tenor.com/l53qv3b1lhoAAAAd/silicon-valley-locked.gif">
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=juancinfante&label=Profile%20views&color=0e75b6&style=flat" alt="juancinfante" /> </p>
 
 
